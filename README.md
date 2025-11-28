@@ -5,7 +5,7 @@ Vamos a mais uma conquista na sua formação profissional !
 ---
 
 ## Integrantes
-** Quem é essa equipe massa ! **
+**Quem é essa equipe massa !
 
 * Lilyth, Guilherme Firmino, Gustavo, Tarso, Rhuan, e Wilson.
 
